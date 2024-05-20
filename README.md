@@ -1,4 +1,4 @@
-### Hi there 👋
+### I like to enjoy what I do and if it means acquiring knowledge while working even better. From my training, more oriented towards production, to what work experience has given me over the last 15 years, the installations and maintenance of safety equipment, I have not stopped learning and I hope to continue to do so for a long time.
 
 <!--
 **XoricDev/XoricDev** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
